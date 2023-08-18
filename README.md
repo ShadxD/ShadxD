@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **mdshad7041@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1MuPKd8aGHHaZxLHAkaZGFueNgn8KV0Cf/view?usp=sharing](https://drive.google.com/file/d/1MuPKd8aGHHaZxLHAkaZGFueNgn8KV0Cf/view?usp=sharing)
+- 📄 Resume [https://drive.google.com/file/d/1MuPKd8aGHHaZxLHAkaZGFueNgn8KV0Cf/view?usp=sharing](https://drive.google.com/file/d/1MuPKd8aGHHaZxLHAkaZGFueNgn8KV0Cf/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
